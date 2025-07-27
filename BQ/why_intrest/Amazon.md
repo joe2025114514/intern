@@ -4,3 +4,5 @@ From this, I can see that Amazon values putting users first, working efficiently
 
 I believe Amazon is a place where I can grow my skills, learn from strong teams, and contribute to products that make a real difference in people’s lives.
 
+1. 太书面了
+2. 缺少specific details
